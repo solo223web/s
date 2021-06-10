@@ -1,2 +1,1 @@
-# s
-Tiny
+Am Solomon by name from Nigeria am a igbo boy living with my aunty and also am a guy withdreams,e.gi want to be famous and Rich like davido coz I work all day and night no rest and also I need help thank u.
